@@ -1,2 +1,0 @@
-# andriyansah.github.io
-cv
